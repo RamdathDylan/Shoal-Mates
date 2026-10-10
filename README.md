@@ -1,1 +1,1 @@
-# Shoal-Mates
+# Shoal Mates
